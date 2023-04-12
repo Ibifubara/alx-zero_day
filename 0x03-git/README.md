@@ -1,1 +1,1 @@
-I'm actually looking forward to all I can learn during the course of this program, fingers crossed
+I'm actually looking forward to all I can learn during the course of this program, fingers crossed. I've really learnt a few things thar are useful just by doing this git task up to this point and I'm happy for the progress made through research, reading and understand the questions properly.
